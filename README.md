@@ -4,4 +4,4 @@
 
 🌱 I’m currently learning Computer Science and Engineering
 
-📚 I'm currently studying at Monta Vista High School
+📚 I'm currently going to school at Monta Vista High School
